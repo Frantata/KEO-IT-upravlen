@@ -1,1 +1,0 @@
-# KEO-IT-upravlen
